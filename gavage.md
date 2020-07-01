@@ -1,6 +1,6 @@
 Why does gavage mean?
 
-"Of all the companies subjected to SoftBank’s "investment by gavage"
+"Of all the companies subjected to SoftBank’s "investment by *gavage*"...
 
 ---
 
